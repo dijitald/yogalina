@@ -1,2 +1,1 @@
-# yogalina
-Coming Soon!
+# Yogalina - By Sandra Lina
